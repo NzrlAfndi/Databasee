@@ -1,2 +1,2 @@
-# Database-Fandyyy
-Cuma Nyimpen Biar Kalo Ada Yang Mau Pake Tinggal Pake Aja
+# Database By Fandyyy
+SILAHKAN DIPAKAI KALAU MAU NAMBAHIN TINGGAL PULL REQUEST AJA NTAR TAK ACC 🐧
