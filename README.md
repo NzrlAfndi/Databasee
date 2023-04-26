@@ -9,4 +9,4 @@
 * [`Eabdalmufid`](https://github.com/eabdalmufid)
 
 # Connect With Me
-* [`Whatsapp Group`](https://chat.whatsapp.com/CSqakw6x2wRIOWTPL5a6a9)
+* [`Whatsapp Group`](https://chat.whatsapp.com/I1VAMqNhmQY5CVbAydsqbU)
