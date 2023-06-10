@@ -7,7 +7,7 @@
 * [`Fandyyy`](https://github.com/NzrlAfndi)
 * [`Erlan`](https://github.com/ERLANRAHMAT)
 * [`Eabdalmufid`](https://github.com/eabdalmufid)
-* [`Leuthra`](https://github.com/leuthra)
+* [`Rominaru`](https://github.com/leuthra)
 
 # Connect With Me
 * [`Whatsapp Group`](https://chat.whatsapp.com/I1VAMqNhmQY5CVbAydsqbU)
